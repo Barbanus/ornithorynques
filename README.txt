@@ -1,1 +1,1 @@
-Je vais profiter de cette activité pour faire parvenir des images d'ornithorynques à mes correcteurs.
+Je vais profiter de cette activité pour faire parvenir des images concernant les ornithorynques à mes correcteurs.
